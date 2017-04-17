@@ -1,0 +1,2 @@
+# luckyseven
+make money
